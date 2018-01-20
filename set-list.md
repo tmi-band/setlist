@@ -1,0 +1,43 @@
+# Set List
+
+- Forever Man - Eric Clapton
+- Your Mama Don't Dance - Loggins & Messina
+- Keep Your Hands to Yourself - Georgia Satellites
+- Give Me One Reason - Tracy Chapman
+- Two Tickets to Paradise - Eddie Money
+- Angel From Montgomery - Bonnie Raitt
+- Hard to Handle - The Black Crowes
+- Breakdown - Tom Petty
+- Mary Jane's Last Dance - Tom Petty
+- Pride and Joy - Stevie Ray Vaughan
+- Any Way You Want It - Journey
+- Green River - Creedence Clearwater Revival
+- Summer of 69 - Bryan Adams
+- Black Velvet - Allanah Miles
+- Shakin' - Eddie Money
+- Mustang Sally - Buddy Guy
+- Drift Away - Dobie Gray
+- Knockin' on Heaven's Door - Bob Dylan
+- Brown Eyed Girl - Van Morrison
+- Evil Ways - Santana
+- La Bamba - Ritchie Valens
+- Play That Funky Music - Wild Cherry
+- Roadhouse Blues - The Doors
+- Wonderful Tonight - Eric Clapton
+- China Grove - The Doobie Brothers
+- Purple Rain - Prince
+- Losing My Religion - R.E.M.
+- Bad to the Bone - George Thorogood
+- Rock This Town - The Stray Cats
+- I Won't Back Down - Tom Petty
+- Stray Cat Strut - The Stray Cats
+- Hit Me With Your Best Shot - Pat Benatar
+- Brick House - The Commodores
+- I'm the Only One - Melissa Etheridge
+- Come to My Window - Melissa Etheridge
+- Little Wing - Stevie Marshall Hendrix
+- Open Invitation - Santana
+- Black Magic Woman/Gypsy Queen - Santana
+- Oye Como Va - Santana
+- Wanted Dead or Alive - Bon Jovi
+- Ain't no Sunshine - Bill Withers
